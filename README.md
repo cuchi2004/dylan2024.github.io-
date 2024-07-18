@@ -1,1 +1,1 @@
-Comocer sobre quito 
+Conocer sobre quito 
